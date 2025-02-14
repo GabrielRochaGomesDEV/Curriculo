@@ -1,7 +1,6 @@
 GABRIEL DA ROCHA GOMES
  
-(11) 95021-2232
-Jundiaí, SP gabrielrocha28@gmail.com
+
 
 Disponibilidade de trabalho remoto ou presencial
  
