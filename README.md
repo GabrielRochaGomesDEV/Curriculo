@@ -36,8 +36,8 @@ QA - Analise de teste (Em andamento)
 
 
 
-S K I L L S:  RESPONSÁVEL	    TRABALHO EM EQUIPE	       COMUNICATIVO
-              • • • • • •          • • • • • •               • • • • • • 
+S K I L L S: RESPONSÁVEL  TRABALHO EM EQUIPE COMUNICATIVO
+              
 
               
 
